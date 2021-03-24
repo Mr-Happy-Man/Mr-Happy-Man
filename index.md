@@ -5,5 +5,5 @@ You can chat with these tgirls for free. You only need to buy tokens if you want
 
 [Click here to check these tgirls :)](https://chaturbate.com/in/?track=default&tour=khMd&campaign=pgd2i) 
 
-[<img src="https://github.com/Mr-Happy-Man/Mr-Happy-Man/blob/main/trans-chat1.jpg?raw=true">](https://chaturbate.com/in/?track=default&tour=khMd&campaign=pgd2i) [<img src="https://github.com/Mr-Happy-Man/Mr-Happy-Man/blob/main/trans-chat2.jpg">](https://chaturbate.com/in/?track=default&tour=khMd&campaign=pgd2i)
+[<img src="https://github.com/Mr-Happy-Man/Mr-Happy-Man/blob/main/trans-chat1.jpg?raw=true">](https://chaturbate.com/in/?track=default&tour=khMd&campaign=pgd2i) 
 
